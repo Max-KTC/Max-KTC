@@ -1,4 +1,4 @@
-# Hi, I'm Kittichet (Max) 👋
+# Hi, I'm Kittichet (Max)
 
 Computer Engineering student at Kasetsart University, Bangkhen.
 
